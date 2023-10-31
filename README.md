@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning how
 - 💞️ I’m looking to collaborate on gaming grandmas
-- 📫 How to reach me: grandpa#9814 pn xbox
+- 📫 How to reach me: grandpa#9814 on xbox
 
 <!---
 Grxndpagxming/Grxndpagxming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
